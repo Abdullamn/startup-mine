@@ -1,2 +1,2 @@
 # startup-mine
-abdulla is the one 
+https://abdullamn.github.io/startup-mine/
